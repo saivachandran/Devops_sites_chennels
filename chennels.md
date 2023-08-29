@@ -4,3 +4,9 @@
 https://www.youtube.com/watch?v=jJX6S5JAGpI&list=PL7iMyoQPMtAOz187ezONf7pL8oGZRobYl
 ```
 
+2. learnit guide
+
+  ```
+   https://www.youtube.com/watch?v=UhSoTq0H-JY&list=PLYliwzTugkt3_8H2JPTUfzQ6NpsEzF41K
+  ```
+
